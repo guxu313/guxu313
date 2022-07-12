@@ -1,4 +1,4 @@
-### Better late than never! Fighting✨ 
+### Hi, there ✨ 
 
 <!--
 **guxu313/guxu313** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
